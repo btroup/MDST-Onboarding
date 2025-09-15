@@ -62,8 +62,6 @@ Tutorial Overview (9/5, 6-7 PM)
 Office Hours #1 (9/9, 6-8 PM) 
 2448 MH 
 
-Office Hours #2 (9/12, 5-7 PM) 
-2448 MH 
 
 
 ## Submission
